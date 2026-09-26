@@ -37,13 +37,3 @@ I hold a Bachelor of Cinema Arts from the College of Fine Arts, University of Ba
 [Official portfolio](https://isamo.us) · [LinkedIn](https://www.linkedin.com/in/samer-abdulridha/) · [Behance](https://www.behance.net/samerabdulridha2) · [Instagram](https://www.instagram.com/isvmo.s/) · [iFiction](https://www.instagram.com/ificti0n/) · [Pinterest](https://www.pinterest.com/girolamo5v/) · [Telegram](https://t.me/isamovisions)
 
 **Professional enquiries:** [samo@samo0.com](mailto:samo@samo0.com)
-
----
-
-## سامر عبد الرضا — Samo / iSamo
-
-مبدع رقمي أول بالذكاء الاصطناعي، من بغداد. أجمع السرد البصري والإخراج الإبداعي وصناعة الصور والفيديو بالذكاء الاصطناعي مع خبرة تتجاوز عشرين عاماً في السينما والإضاءة والإنتاج التلفزيوني والتصوير.
-
-**iSamo** هي هويتي الإبداعية ومساحتي لعرض الأعمال والتجارب التفاعلية.
-
-[السيرة بالعربية](https://isamo.us/ar/bio) · [التغطيات الإعلامية](https://isamo.us/ar/press) · [قصص المشاريع](https://isamo.us/ar/projects) · [استكشف أعمالي](https://isamo.us)
